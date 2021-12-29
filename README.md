@@ -1,5 +1,4 @@
 💗 16 years old |
-💗 Cheat developer  
 ✨ Languages: C++, C, C#, Assembly
 - Discord: linely#0001
 - Add me on discord if you need anything! 
